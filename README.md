@@ -1,6 +1,6 @@
 # **SAUSAGE PARTY**
 
-![SAUSAGE]([https://www.themoviethemesong.com/wp-content/uploads/2017/05/fast-and-the-furious-tokyo-drift-movie-theme-song-5.jpg])
+![SAUSAGE](https://i.pinimg.com/originals/cc/8e/0c/cc8e0ca9ab69528970de237e68abedff.jpg)
 
 # **Sausage Party**
 
